@@ -1,0 +1,1 @@
+# buygood.company
